@@ -47,7 +47,7 @@ EPAM - Computer Science Basics (2022)
 
 ####  WORKING EXPIRIENCE 
 
-No experience in the IT sphere 
+No experience in the IT sphere by now
 
 *****
 
