@@ -3,9 +3,7 @@
 #### CONTACT INFORMATION:
 
 * **PHONE:** +375296884636 
-
 * **EMAIL:** exoticqueen777@gmail.com
-
 * **TELEGRAM:** @Swweetbunny
 * **DISCORD:** KrisTina#4958
 * **GITHUB:** KrisTinaDi
