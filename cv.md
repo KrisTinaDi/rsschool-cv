@@ -12,7 +12,7 @@
 
 ####  ABOUT MYSELF
 
-I have been working in the fashion retail sphere for more than 8 years. I love fashion and trends and also I love to learn new, to develop myself and to face challegings. My aim is to become an IT specialist without any technical background in the past. In my opinion everything depends only on me and my effort to learning. 
+I have been working in the fashion retail sphere for more than 8 years. I love fashion and trends and also I love to learn new, to develop myself and to face challegings. My aim is to become an IT specialist without any technical background in the past. In my opinion everything depends only on me and my effort to learning and a bit of luck. 
 
 *****
 
